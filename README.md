@@ -1,0 +1,1 @@
+# zodiac-tarot-fire-app
